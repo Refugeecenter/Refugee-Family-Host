@@ -1,0 +1,2 @@
+# Refugee-Family-Host
+Our Host Network program is simply created to help low-income refugee and resident or willing to reside in Utah County with subsidized housing. The goal is to create a network of volunteer host families who are willing to support refugees in Utah County. These families will provide housing support and friendship for refugee families. This program is not created to dependency but to lift those whose income is at or below 150% FPL
